@@ -15,4 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
  ## 🔭 I’m currently working on 
-- [**FiveWarts**](http://discord.gg/fivewarts)
+- [**GEM**](https://discord.gg/K9aYb95Tfp)
+  
+- [**Myst Hollow**](https://discord.gg/fWPx9GqUT2)
