@@ -15,6 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
  ## 🔭 I’m currently working on 
-- [**GEM**](https://discord.gg/K9aYb95Tfp)
+- [**Moon Warts**](https://discord.moonwart.fr)
   
 - [**Myst Hollow**](https://discord.gg/fWPx9GqUT2)
